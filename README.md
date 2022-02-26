@@ -1,0 +1,1 @@
+# Easier-And-Effective-Way-To-Pass-the-PSM-I-Exam-With-Scrum-PSM-I-Questions
